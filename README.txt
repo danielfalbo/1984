@@ -1,0 +1,2 @@
+who controls the past controls the future.
+who controls the present controls the past.
